@@ -21,4 +21,4 @@ basic dni criteria, people i've blocked before, people who only vent, homo/trans
 <img src="https://camo.githubusercontent.com/5f644b3f5459e0d4a522dd095c81647c745776b3b2d94f89b77df0d20c37e59f/68747470733a2f2f692e696d6775722e636f6d2f6c614b776136592e676966" width="200" height="300">   
 <div align="center">
   
-rentry wip
+rentry wip - carrd wip
