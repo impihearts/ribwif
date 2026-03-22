@@ -36,7 +36,9 @@ aroace and demiromantic, i border between intj and infp, 6w7 sp/sx, multifandom 
 <img src="https://64.media.tumblr.com/0357e6e3726f6c9132f0fabe4a20d63c/96ced66b307b99b7-64/s1280x1920/b60f9ae44a928da78b7e364a5b2f4d1cfd655519.pnj" width="150" height="200">   
 <div align="center">
 
-rentry wip - carrd wip
+rentry ₊ carrd
+<div align="center">
+wip
 <br>
 </details>
 <br>
